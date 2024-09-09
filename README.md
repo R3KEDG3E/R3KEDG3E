@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @R3KEDG3E
+- 👀 I’m interested in Videogames, Sci-Fi literature, Anime, Manga and computers.
+- 🌱 I’m currently learning Django, Godot, English at a bussiness level and Japanese.
+- 📫 How to reach me: nestormarroquin32@gmail.com  
+- 😄 Pronouns: He
+- ⚡ Fun fact: I proudly stand as a stupid person :D
